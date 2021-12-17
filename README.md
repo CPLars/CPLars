@@ -1,5 +1,5 @@
 ### Hi there 👋
-This is a space program for UAT, a technilogical school with many great qualities!
+I'll have lots of different things on this profile in the near future, so it's easy to get lost, good luck!
 <!--
 **CPLars/CPLars** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
